@@ -1,6 +1,6 @@
 ## Sup👋, my name is Platon
 
-### Studying at Polar State University for applied informatics in economy.
+### Studying at Polar State University for applied informatics in economy :computer:
 ___
 
 Like to stream and make videos [<img src= "https://www.gstatic.com/youtube/img/branding/youtubelogo/svg/youtubelogo.svg" width="65" />](https://www.youtube.com/@lemonesss/streams)
